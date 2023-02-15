@@ -1238,12 +1238,11 @@ Miracles are **in** negative from positive written, as **in** back-end to front-
 **In Wonders**
 
 -2. Who \
--1. What \
-\
-1. Where \
-2. When \
-3. How \
-4. Which \
+-1. What
+1. Where
+2. When
+3. How
+4. Which
 5. Why
 
 Where *in* any working regard, both true and false, *in* equal and opposite reaction; it is physics — by on each side +/-, made out as all, *in* 3=1. Regarding 1+2=3 — 5=3+/-2:+/- is relevance. Relevance with regard for physics is the context for all natural fixation, upon three generations that with Miracles as the base line, to the fluctuations of wonder are Holy.
