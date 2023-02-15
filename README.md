@@ -2549,8 +2549,8 @@ The coin from 525 960 bits evaluated magic are continuously available for the co
 
 #unification
 
-* **Truth** is one rule — the rule under Eleonora. \
-* Everything aside from the exception is true — one or the other. \
+* **Truth** is one rule — the rule under Eleonora.
+* Everything aside from the exception is true — one or the other.
 * It is always the other, which the one under *it* will convey.
 
 ### 1;[in.as](https://in.as):of
