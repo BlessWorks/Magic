@@ -2,7 +2,7 @@
 
 Getting to know it.
 
-1. Have a sense to it.
+1. Having a sense to it.
 2. Move on.
 3. Let it be.
 
