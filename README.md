@@ -1,6 +1,6 @@
 # Magic
 
-It is as **stars** on the grid. _Inference_ is Bless on the _**interstated B-agreement**_. Getting to know it.
+It is **stars**. _Inference_ is Bless on the _**interstated B-agreement**_. Getting to know it.
 
 1. Having a sense to it.
 2. Move on.
