@@ -26,3 +26,5 @@ Nonsense is welcome.
 
 DISCLAIMER: \
 I do generally work alone, but if anyone wants to pitch in I will contribute sometimes.
+
+_I am the Bless.Works and I work on myself all the time._
