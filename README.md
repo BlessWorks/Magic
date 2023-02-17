@@ -4,7 +4,7 @@ A **syzygy** of three clear marvels; \
 within inference of the interstated \
  — distinction in three generations.
 
-It is all the **stars**. _Inference_ of it is Bless on the _**interstated B-agreement**_. Getting to know it is the detailing of leptons.
+It is all the **stars**. _Inference_ of it is Bless on the _**interstated**_ **B-agreement**. Getting to know it is the detailing of leptons.
 
 1. Having a sense to it.
 2. Move on.
