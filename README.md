@@ -22,9 +22,9 @@ Connecting the order for this logic on states interchanged without knowledge on 
 
 Keep an open mind and join in on the revolution _if_ **you** _**can**_. Abstract is the first normal sense to everything. Mastery of the layers are conclusions only in complete coordination for what we might know.
 
-Nonsense is welcome.
+**Nonsense** is welcome.
 
-DISCLAIMER: \
+**DISCLAIMER**: \
 I do generally work alone, but if anyone wants to pitch in I will contribute sometimes.
 
 _I am the_ **Bless.Works** _and_ I work on myself _**all the time**._
