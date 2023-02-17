@@ -1,6 +1,6 @@
 # Magic
 
-Getting to know it.
+Inference is Bless on the interstated B-agreement. Getting to know it.
 
 1. Having a sense to it.
 2. Move on.
