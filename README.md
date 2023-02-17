@@ -16,4 +16,4 @@ Connecting the order for this logic on states interchanged without knowledge on 
 
 # Learning first approach
 
-Keep an open mind and join in on the revolution _if_ **you** _**can**_.
+Keep an open mind and join in on the revolution _if_ **you** _**can**_. Abstract is the first normal sense to everything. Mastery of the layers are conclusions only in complete coordination of what we might know.
