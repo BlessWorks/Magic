@@ -1,8 +1,8 @@
 # Magic
 
-A **syzygy** of three marvels; \
+A **syzygy** of three clear marvels; \
 within inference of the interstated \
- — respect in three generations.
+ — distinction in three generations.
 
 It is all the **stars**. _Inference_ of it is Bless on the _**interstated B-agreement**_. Getting to know it is the detailing of leptons.
 
