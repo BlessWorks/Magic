@@ -76,7 +76,7 @@ At **attitude** rebound rejection, void in the interskill of application; ***apt
 
 # Exchange State Levels
 
-*Tied for the **context** in an **object** of **interchange**.*
+*Tied for the **context** in an_ **object** _of **interchange**.*
 
 > Clearly
 
