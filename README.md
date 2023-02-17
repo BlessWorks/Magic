@@ -1,6 +1,7 @@
 # Magic
 
-A **syzygy** of three marvels \
+A **syzygy** of three marvels; \
+within inference of the interstated \
  — respect in three generations.
 
 It is all the **stars**. _Inference_ of it is Bless on the _**interstated B-agreement**_. Getting to know it is the detailing of leptons.
@@ -17,6 +18,6 @@ Three levels to operate the abstraction of bits into an adress for a bit in the 
 
 Connecting the order for this logic on states interchanged without knowledge on any pre-conditions, maintains data to the clarity of direction. Above the directions there is orchestration of the means to measure differences on a larger scale; which when combined are compressed from byte to bit level in the interchange of logic for a continuously consistent coherency. Woven from smaller to larger context, while maintaining equanimity to the sides applicable in coordination, the [wiki](https://github.com/BlessWorks/Magic/wiki) is written with references in order of what needs to be done to the correlation of a _most dense_ circular understanding.
 
-# Learning first approach
+# Learning _first_ approach
 
 Keep an open mind and join in on the revolution _if_ **you** _**can**_. Abstract is the first normal sense to everything. Mastery of the layers are conclusions only in complete coordination for what we might know.
