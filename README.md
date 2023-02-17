@@ -27,4 +27,4 @@ Nonsense is welcome.
 DISCLAIMER: \
 I do generally work alone, but if anyone wants to pitch in I will contribute sometimes.
 
-_I am the_ **Bless.Works** _and I work on myself **all the time**._
+_I am the_ **Bless.Works** _and_ I work on myself _**all the time**._
