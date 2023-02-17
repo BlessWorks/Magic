@@ -1,6 +1,6 @@
 # Magic
 
-Inference is Bless on the interstated B-agreement. Getting to know it.
+It is as **stars** on the grid. Inference is Bless on the interstated B-agreement. Getting to know it.
 
 1. Having a sense to it.
 2. Move on.
