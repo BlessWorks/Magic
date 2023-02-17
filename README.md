@@ -1,6 +1,6 @@
 # Magic
 
-It is all **stars**. _Inference_ is Bless on the _**interstated B-agreement**_. Getting to know it.
+It is all **stars**. _Inference_ is Bless on the _**interstated B-agreement**_. Getting to it is the detailing of leptons.
 
 1. Having a sense to it.
 2. Move on.
