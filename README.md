@@ -1,5 +1,8 @@
 # Magic
 
+A syzygy of three marvels \
+ — respect in three generations.
+
 It is all the **stars**. _Inference_ of it is Bless on the _**interstated B-agreement**_. Getting to know it is the detailing of leptons.
 
 1. Having a sense to it.
